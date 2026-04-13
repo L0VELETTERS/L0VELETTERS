@@ -1,4 +1,6 @@
 <p align="center">
+<a href="https://visitorbadge.io/status?path=L0VELETTERS%20"><img src="https://api.visitorbadge.io/api/visitors?path=L0VELETTERS%20&label=visitors&labelColor=%23fffff1&countColor=%23ca7a91" /></a>
+<p align="center">
 $\Large{\textsf{,, 𝘯𝘰𝘵𝘩𝘪𝘯𝘨 𝘵𝘢𝘭𝘬𝘴, 𝘯𝘰 𝘰𝘯𝘦 𝘸𝘢𝘭𝘬𝘴
 ''}}$
 <img width="2033" height="866" alt="Image" src="https://github.com/user-attachments/assets/3ac9dea4-2b24-48ca-8ef3-57e92ffbf29b" />
