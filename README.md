@@ -13,4 +13,4 @@ $\Large{\textsf{,, 𝘐 𝘕𝘌𝘌𝘋 𝘈 𝘏𝘜𝘔𝘈𝘕𝘚 𝘛𝘖�
 $\Large{\textsf{,, 𝘐'𝘔 𝘖𝘉𝘚𝘖𝘓𝘌𝘛𝘌
 ''}}$
 <p align="center">
-$\small{\textsf{PROBLEM? REFER TO MY ATABOOK.}}$
+PROBLEM? REFER TO MY ATABOOK
