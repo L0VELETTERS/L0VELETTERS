@@ -10,7 +10,7 @@ $\Large{\textsf{,, 𝘐 𝘕𝘌𝘌𝘋 𝘈 𝘏𝘜𝘔𝘈𝘕𝘚 𝘛𝘖�
   </a>
 </p>
 <p align="center">
-$\Large{\textsf{,, 𝘠𝘖𝘜 𝘋𝘖𝘕'𝘛 𝘕𝘌𝘌𝘋 𝘔𝘌
+$\Large{\textsf{,, 𝘐'𝘔 𝘖𝘉𝘚𝘖𝘓𝘌𝘛𝘌
 ''}}$
 <p align="center">
 $\small{\textsf{PROBLEM? REFER TO MY ATABOOK.}}$
