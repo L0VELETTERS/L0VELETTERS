@@ -1,16 +1,14 @@
 <p align="center">
-<a href="https://visitorbadge.io/status?path=L0VELETTERS"><img src="https://api.visitorbadge.io/api/visitors?path=L0VELETTERS&labelColor=%23f5f6e6&countColor=%2323986e" /></a>
+<a href="https://visitorbadge.io/status?path=L0VELETTERS"><img src="https://api.visitorbadge.io/api/visitors?path=L0VELETTERS&labelColor=%23720e00&countColor=%23720e00" /></a>
 <p align="center">
-$\Large{\textsf{,, 𝘐 𝘕𝘌𝘌𝘋 𝘈 𝘏𝘜𝘔𝘈𝘕𝘚 𝘛𝘖𝘜𝘊𝘏, 𝘉𝘜𝘛...
-''}}$
-<img width="1142" height="488" alt="Image" src="https://github.com/user-attachments/assets/98a076a9-fcdd-44e2-bd68-3134a9cb6d87" />
+$\Large{\textsf{,, 𝘺𝘰𝘶 𝘥𝘰𝘯'𝘵 𝘬𝘯𝘰𝘸, 𝘣𝘶𝘵 𝘺𝘰𝘶 𝘢𝘳𝘦 𝘩𝘶𝘳𝘵𝘪𝘯𝘨 𝘮𝘦!''}}$
+<img width="1280" height="514" alt="Image" src="https://github.com/user-attachments/assets/8fcfb8ef-f1f8-4285-81be-9fc62e3e7b40" />
 <p align="center">
   <a href="https://github.com/kittinan/spotify-github-profile">
     <img src="https://spotify-github-profile.kittinanx.com/api/view?uid=31ruq4w7xwunfczu4v2tbftgd3x4&cover_image=true&theme=natemoo-re&show_offline=false&background_color=121212&interchange=false&profanity=false&bar_color=d1d1d1&bar_color_cover=false">
   </a>
 </p>
 <p align="center">
-$\Large{\textsf{,, 𝘐'𝘔 𝘖𝘉𝘚𝘖𝘓𝘌𝘛𝘌
-''}}$
+$\Large{\textsf{,, 𝘪 𝘯𝘦𝘦𝘥 𝘵𝘰 𝘥𝘰 𝘮𝘺 𝘰𝘸𝘯 𝘵𝘩𝘪𝘯𝘨, 𝘺𝘰𝘶 𝘴𝘦𝘦..''}}$
 <p align="center">
-please feel free to talk to me, i love making new friends
+read my dni's before interacting
