@@ -1,7 +1,6 @@
 <p align="center">
 <a href="https://visitorbadge.io/status?path=L0VELETTERS"><img src="https://api.visitorbadge.io/api/visitors?path=L0VELETTERS&labelColor=%23720e00&countColor=%23720e00" /></a>
 <p align="center">
-$\Large{\textsf{,, 𝘺𝘰𝘶 𝘥𝘰𝘯'𝘵 𝘬𝘯𝘰𝘸, 𝘣𝘶𝘵 𝘺𝘰𝘶 𝘢𝘳𝘦 𝘩𝘶𝘳𝘵𝘪𝘯𝘨 𝘮𝘦!''}}$
 <img width="1280" height="514" alt="Image" src="https://github.com/user-attachments/assets/8fcfb8ef-f1f8-4285-81be-9fc62e3e7b40" />
 <p align="center">
   <a href="https://github.com/kittinan/spotify-github-profile">
