@@ -8,6 +8,4 @@
   </a>
 </p>
 <p align="center">
-$\Large{\textsf{,, 𝘪 𝘯𝘦𝘦𝘥 𝘵𝘰 𝘥𝘰 𝘮𝘺 𝘰𝘸𝘯 𝘵𝘩𝘪𝘯𝘨, 𝘺𝘰𝘶 𝘴𝘦𝘦..''}}$
-<p align="center">
 read my dni's before interacting
