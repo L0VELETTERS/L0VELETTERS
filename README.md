@@ -8,4 +8,4 @@
   </a>
 </p>
 <p align="center">
-read my dni's before interacting
+read my dni's before interacting. i have a bunch of weirdos hidden so please lmk if im sitting on someone or if im being covered
