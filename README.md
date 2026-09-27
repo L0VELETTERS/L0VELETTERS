@@ -8,4 +8,7 @@
   </a>
 </p>
 <p align="center">
-read my dni's before interacting. i have a bunch of weirdos hidden so please lmk if im sitting on someone or if im being covered
+read my dni's before interacting. (listed on prns page + sp) 
+  </p>
+<p align="center">
+  i have a bunch of weirdos hidden so please lmk if im sitting on someone or if im being covered
